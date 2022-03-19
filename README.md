@@ -6,7 +6,7 @@ Crypto brands and projects can leverage relevant audiences with predictable, mea
 
 Website: https://coinfuel.co/
 
-Socials and CommunitiesL
+Socials and Communities:
 
 Twitter: https://twitter.com/coinfueldotco
 Instagram: https://instagram.com/CoinFuel.co
