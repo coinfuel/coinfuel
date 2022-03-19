@@ -12,3 +12,4 @@ Twitter: https://twitter.com/coinfueldotco
 Instagram: https://instagram.com/CoinFuel.co
 Telegram: https://t.me/CoinFuelOfficial
 Discord: https://discord.gg/5z2R7BvQTm
+Reddit coming soon
